@@ -67,6 +67,7 @@
       本教程中，贞操锁被当作长期佩戴的调教道具，而不是短时间使用的小玩具。<br>
       务必<b>不要</b>使用导尿管以避免感染。
   </div>
+
 #### 约束用品
 
 如果预算有限，编者推荐选择：分腿器一个（需配大腿环*2，长度在30cm左右最佳，务必结实），项圈一个，手铐一副，锁链一条，挂锁2个（锁链到项圈一个，到柱子一个）。
@@ -290,6 +291,7 @@
     <span style="color: #007bff; font-weight: bold;">ℹ️ 注释</span><br>
     可以提前取出冰块藏在附近
 </div>
+
 #### 假装玩弄你的M
 
   <div style="border-left: 5px solid #ffc107; background-color: #fff3cd; padding: 10px; border-radius: 5px;">
